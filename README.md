@@ -16,8 +16,3 @@
 3:数据分析<br/><br/>
 
 4:可视化<br/><br/>
-
-Email：Thinkagmer_gyt@gmail.com<br>
-QQ：1923361654<br>
-WeChat：gyt13342445911<br>
-微博：<a href="http://weibo.com/234654758">Thinkgamer<a>
